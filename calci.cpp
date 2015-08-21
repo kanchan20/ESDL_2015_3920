@@ -1,3 +1,3 @@
 Hello everyone!!
-Welcome to Github!!
-have a fun
+I am kanchan Dhande
+From cummins college
